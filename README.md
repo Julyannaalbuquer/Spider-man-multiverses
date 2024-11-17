@@ -1,1 +1,1 @@
-Spider-man multiverseeses 🕷
+Spider-man multiverses 🕷
